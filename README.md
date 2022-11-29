@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SmF2715
 - 👀 I’m interested in vodka
-- 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on schodka
+- 🌱 I’m currently learning how to survive in that world
+- 💞️ I’m looking to collaborate with someone at r6siedge
 - 📫 How to reach me: please send me your messages at Telegram @DeD2715
 
 <!---
